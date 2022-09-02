@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sharifa-jamaldin
 - 👀 I’m interested in writing, film, art, design, fashion, fairytales, animation, and saving the planet.
-- 🌱 I’m currently learning to be a youtuber, to be me, and to make the best cookies ever.
+- 🌱 I’m currently learning to be a youtuber and to make the best cookies ever.
 - 💞️ I’m looking to collaborate on apps, filmmaking, animation, instruction books, festivals.
 - 📫 How to reach me ...
 - m: +32 471269729

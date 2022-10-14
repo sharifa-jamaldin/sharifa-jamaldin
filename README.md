@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sharifa-jamaldin
-- 💚 I’m passionate about writing, creativity, cultural history, fairytales, the internet, and saving the planet.
+- 💚 I’m passionate about writing, creativity, archeology, art and culture, folktales, the internet, and saving the planet.
 - ⌨ I’m currently working on several online writing courses
 - ⚥ I’m looking to collaborate on creative projects and instruction books
 - 📱 How to reach me ...
